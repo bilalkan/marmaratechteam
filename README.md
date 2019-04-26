@@ -1,0 +1,1 @@
+Bu etkinliğin duyuru yazısıdır.
